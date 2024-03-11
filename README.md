@@ -1,0 +1,2 @@
+# 0Army.io
+TRUSTWALLET
